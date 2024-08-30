@@ -1,0 +1,1 @@
+My certificate of completion for the course: [CertificateOfCompletion_React.js Essential Training.pdf](https://github.com/user-attachments/files/16816944/CertificateOfCompletion_React.js.Essential.Training.pdf)
